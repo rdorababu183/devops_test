@@ -1,1 +1,1 @@
-How fre doing guys today
+How are you doing guys today
